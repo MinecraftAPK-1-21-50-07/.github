@@ -2,7 +2,7 @@
 
 Minecraft continúa reinventándose con la actualización 1.21.50.07, apodada **The Garden Awakens**. Este lanzamiento para Android introduce emocionantes novedades que revitalizan el mundo del juego, como el bioma **Jardín Pálido**, nuevos bloques, mobs y mucho más. En este artículo, exploraremos las características más destacadas de esta versión y cómo aprovecharlas al máximo. ¡Prepárate para sumergirte en esta experiencia única!
 
-## DESCARGAR : [Minecraft 1.21.50.07](https://tinyurl.com/cfmvt84m)
+## DESCARGAR : [Minecraft APK 1.21.50.07](https://tinyurl.com/cfmvt84m)
 
 ![image](https://github.com/user-attachments/assets/5c36e0c6-37f4-46d1-9f7f-2896620b12d3)
 
